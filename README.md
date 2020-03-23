@@ -9,4 +9,5 @@
 * Neighborhood rainbow - paint a rainbow (activity #1), hang it somewhere visible from outside your home (activity #2), get your neighbors to do the same (activity #3), safely explore your neighborhood to find rainbows (activity #4, repeat)
 * Reading
 * Puzzles
+* Paper cutouts, for example animals
 * Coloring books
