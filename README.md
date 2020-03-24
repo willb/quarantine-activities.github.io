@@ -12,3 +12,7 @@
 * Paper cutouts, for example animals
 * Coloring books
 * Photography - take a trip around the home snapping pictures of things that catch your eye (activity #1), curate the pictures (activity #2), print and make a collage (activity #3)
+* Create a bowling game with recyclable materials (plastic bottles)
+* Build characters from favourite book with plasticine
+* Pitch a tent in the garden
+* Treasure hunt
