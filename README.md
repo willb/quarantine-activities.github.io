@@ -16,3 +16,5 @@
 * Build characters from favourite book with plasticine
 * Pitch a tent in the garden
 * Treasure hunt
+* (for older kids) interview relatives / family friends via video conference
+* (for older kids) [turn a can of sweetened condensed milk into dulce de leche](https://www.seriouseats.com/recipes/2015/02/dulce-de-leche-recipe.html)
