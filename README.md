@@ -12,7 +12,5 @@
 * Paper cutouts, for example animals
 * Coloring books
 * Photography - take a trip around the home snapping pictures of things that catch your eye (activity #1), curate the pictures (activity #2), print and make a collage (activity #3)
-* Create a bowling game with recyclable materials (plastic bottles)
-* Build characters from favourite book with plasticine
-* Pitch a tent in the garden
-* Treasure hunt
+* (for older kids) interview relatives / family friends via video conference
+* (for older kids) [turn a can of sweetened condensed milk into dulce de leche](https://www.seriouseats.com/recipes/2015/02/dulce-de-leche-recipe.html)
